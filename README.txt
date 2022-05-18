@@ -1,1 +1,0 @@
-https://d2eild1o4kzgb7.cloudfront.net
